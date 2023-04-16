@@ -1,0 +1,1 @@
+# global-cosmos-staking
